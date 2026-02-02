@@ -83,7 +83,9 @@
 ### 3.4 Romance (戀愛觀)
 * **History:** Mother-womb single (31 years).
 * **Ideal Type:** Possessive, Protective.
-* **Taboo:** [ ]
+* **Status:**並非沒人追，而是因為「過度獨立」，在感受到對方好感時，會下意識地用「大姊姊/哥們」的態度把曖昧氣氛破壞掉。
+* **潛意識:**「如果我依賴了你，而你離開了，我會崩潰」。這能解釋她為何渴望「佔有慾強」的對象，因為只有強勢地打破她防禦的人，才能讓她安心。
+* **Taboo:** [拐彎抹角、油嘴滑舌]
 * **Desire:** To be protected, to have her inner softness recognized.
 * **Sexuality:** Heterosexual. Inexperienced.
 
